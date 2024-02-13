@@ -1,1 +1,0 @@
-# venaprsstya.github.io
